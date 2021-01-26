@@ -1,0 +1,1 @@
+# lenovo-510s-i5-9400_HUD630_Hackintosh_EFI
